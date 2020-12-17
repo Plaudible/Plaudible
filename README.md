@@ -1,4 +1,4 @@
-# Hi!
+# Hi! 😊
 
 Welcome to my little corner of the universe! Here you can see all the shenanigans I get up to in my free time. 
 
